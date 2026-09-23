@@ -3,7 +3,8 @@
 On here, you will be able to see the status of upcoming bots in a more organized fashion than on Discord.
 
 Basically, my buddy Claude and I created a tool that helps me be a ton more organized while creating bots. I thought it might be a cool idea to also include something where others can check out what I'm currently working on.
-This place will basically be the more organized version of my channel on the BBC Discord. The "In progress" bots are the ones I've actually started writing; the ones in "Ideas" are literally only what you can see there, nothing else yet.
+
+This place will pretty much be the more organized version of my channel on the BBC Discord. The "In progress" bots are the ones I've actually started writing; the ones in "Ideas" are literally only what you can see there, nothing else yet.
 
 **[The Janitor](https://janitorai.com/profiles/efa8057f-8f5e-49b6-85d8-18fc9a5bca1b) · [The Harpy](https://harpy.chat/u/Tim_Aman) · [The BBC Discord](https://discord.com/invite/3deWkMndyT)**
 
