@@ -2,7 +2,7 @@
 
 On here, you will be able to see the status of upcoming bots in a more organized fashion than on Discord.
 
-* Placeholder images are selected randomly from my meme folder; they are not associated with the bots
+Placeholder images are selected randomly from my meme folder; they are not associated with the bots
 
 **[The Janitor](https://janitorai.com/profiles/efa8057f-8f5e-49b6-85d8-18fc9a5bca1b) · [The Harpy](https://harpy.chat/u/Tim_Aman) · [The BBC Discord](https://discord.com/invite/3deWkMndyT)**
 
