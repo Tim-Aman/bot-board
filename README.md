@@ -22,6 +22,7 @@ Bundles from my whiteboard. No promises: some become bots, some stay here.
 
 | | Idea | What is in it | Last touched |
 | --- | --- | --- | --- |
+| <img src="images/ib799837ae45e.jpg" width="120" alt=""> | **Ram Ranch** | • Farm Baddie<br>• Creepy Dude wanting to buy the farm<br>• {{user}} is a hired hand for the farm | 2026-09-23 |
 | <img src="images/ph-2a317707e2.gif" width="120" alt="no image yet"><br><sub><i>no image yet</i></sub> | **Tattood Baddie** | • Hot doomer-looking girl with many tattoos<br>• Sees {{user}}, thinks their skin looks nice, wants to tattoo them | 2026-09-21 |
 | <img src="images/ph-58903a0825.jpg" width="120" alt="no image yet"><br><sub><i>no image yet</i></sub> | **Monster Girl**<br><sub>World: Amaron</sub> | • Very weird monster girl<br>• Butch lesbian coded | 2026-09-21 |
 | <img src="images/ph-8ab77dda08.jpg" width="120" alt="no image yet"><br><sub><i>no image yet</i></sub> | **Wolf Furry** | • Dominantly large, but more lonely puppy energy | 2026-09-21 |
