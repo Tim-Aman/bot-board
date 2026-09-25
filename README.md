@@ -14,7 +14,8 @@ This place will pretty much be the more organized version of my channel on the B
 
 | | Bot | Stage | Progress | Last worked on |
 | --- | --- | --- | --- | --- |
-| <img src="images/i93523280f2a9.jpg" width="120" alt=""> | **Bear Thea**<br><sub>Bulky bear demi futa who has SEX?!?</sub><br><sub>World: Bridgemire</sub> | ![concept](https://img.shields.io/badge/stage-concept-8250df) | `░░░░░░░░░░` 0/8 | 2026-09-23 |
+| <img src="images/i93523280f2a9.jpg" width="120" alt=""> | **Bear Girl**<br><sub>Bulky bear demi futa who has SEX?!?</sub><br><sub>World: Bridgemire</sub> | ![writing](https://img.shields.io/badge/stage-writing-0969da) | `▓▓▓▓▓▓▓▓▓▓` 7/7 | 2026-09-25 |
+| <img src="images/i34d254f3aade.jpg" width="120" alt=""> | **Doll Construct**<br><sub>{{user}} gets sent on a quest to bring a magical construct, {{char}},</sub><br><sub>World: Amaron</sub> | ![concept](https://img.shields.io/badge/stage-concept-8250df) |  | 2026-09-24 |
 
 ## Ideas
 
@@ -22,6 +23,7 @@ Bundles from my whiteboard. No promises: some become bots, some stay here.
 
 | | Idea | What is in it | Last touched |
 | --- | --- | --- | --- |
+| <img src="images/ph-2a317707e2.gif" width="120" alt="no image yet"><br><sub><i>no image yet</i></sub> | **British Opp FWB** | • Bruv<br>• You bang on the down-low, but she treats you like you're her opp | 2026-09-25 |
 | <img src="images/ib799837ae45e.jpg" width="120" alt=""> | **Ram Ranch** | • Farm Baddie<br>• Creepy Dude wanting to buy the farm<br>• {{user}} is a hired hand for the farm | 2026-09-23 |
 | <img src="images/ph-2a317707e2.gif" width="120" alt="no image yet"><br><sub><i>no image yet</i></sub> | **Tattood Baddie** | • Hot doomer-looking girl with many tattoos<br>• Sees {{user}}, thinks their skin looks nice, wants to tattoo them | 2026-09-21 |
 | <img src="images/ph-58903a0825.jpg" width="120" alt="no image yet"><br><sub><i>no image yet</i></sub> | **Monster Girl**<br><sub>World: Amaron</sub> | • Very weird monster girl<br>• Butch lesbian coded | 2026-09-21 |
@@ -33,4 +35,4 @@ Bundles from my whiteboard. No promises: some become bots, some stay here.
 
 ---
 
-<sub>Written straight out of my own tool, 2026-09-23. Progress counts the profile sections I write per character: identity, looks, character, backstory, relationships, sexuality, samples.</sub>
+<sub>Written straight out of my own tool, 2026-09-25. Progress counts the profile sections I write per character: identity, looks, character, backstory, relationships, sexuality, samples.</sub>
